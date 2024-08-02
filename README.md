@@ -1,4 +1,4 @@
-HELLO `EVERBODY` , THIS IS KASPER/HABIT ^_^! I DONT BITE ![](https://pixels.crd.co/assets/images/gallery02/eb638353.gif?v=7212058b) unless .. ur'e a baby ![](https://pixels.crd.co/assets/images/gallery13/636a45a0.gif?v=7212058b) I AM AN ADULT
+HELLO `EVERBODY` , THIS IS MICHAEL/HABIT ^_^! I DONT BITE ![](https://pixels.crd.co/assets/images/gallery02/eb638353.gif?v=7212058b) unless .. ur'e a baby ![](https://pixels.crd.co/assets/images/gallery13/636a45a0.gif?v=7212058b) I AM AN ADULT
 
 don't be afraid to WHISPER or chat with me. I'm usually quite friendly or try to be! ![](https://pixels.crd.co/assets/images/gallery42/d85daa54.gif?v=7212058b) I'm apart of a 
 
